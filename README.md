@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name] 👋
+# Hi, I'm Edwin Benny 👋
 
 ### Information Technology | Software Development | Cybersecurity
 
